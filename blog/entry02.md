@@ -1,5 +1,5 @@
 # SEP10 Freedom Project
-## Blog Entry 2: Exploring Technology in 
+## Blog Entry 2: Exploring Technology in (soccer)
 ##### 11/16/2026
 
 ## What I found 
